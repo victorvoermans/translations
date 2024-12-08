@@ -3,34 +3,34 @@
 ### Composite text
 
 1\. **ba-lam ba-lam-lam ḫi-iz<sup>SAR</sup>-am₃ a ba-an-du₁₁**
-> ‘He grows, he grows and grows. Here is a lettuce; he waters it.’
+> He grows, he grows and grows. Here is a lettuce; he waters it.
 
 2\. **<sup>ĝeš</sup>kiri₆ ĜE₆-eden-na gu₂ ĝar-ĝar-ra-na sa₆-ga ama-na-ĝu₁₀**
-> ‘In a _shaded_ garden, in his _bowing down and down._ My beautiful one of his mother.’
+> In a _shaded_ garden, in his _bowing down and down._ My beautiful one of his mother.
 
 3\. **še ab-sin₂-ba ḫi-li si-a-ĝu₁₀ ḫi-iz<sup>SAR</sup>-am₃ a ba-an-du₁₁**
-> ‘My barley in its furrow, filled with charm. Here is a lettuce; he waters it.’
+> My barley in its furrow, filled with charm. Here is a lettuce; he waters it.
 
 4\. **<sup>ĝeš</sup>ḫašḫur niĝ₂ saĝ-ĝa₂ gurun il₂-la-ĝu₁₀ ḫi-iz<sup>SAR</sup>-am₃ a ba-an-du₁₁**
-> ‘My apple tree, _the top part_ bearing fruit. Here is a lettuce; he waters it.’
+> My apple tree, _the top part_ bearing fruit. Here is a lettuce; he waters it.
 
 5\. **lu₂(-)lal₃-e lu₂(-)lal₃-e ĝa₂-e mu-[un]-ku₇-ku₇-de₃-en**
-> ‘_The honey man, the honey man._ He makes me sweet again and again.’
+> _The honey man, the honey man._ He makes me sweet again and again.
 
 6\. **en-ĝu₁₀ lu₂(-)lal₃-e diĝer-ĝu₁₀ sa₆-ga ama-na-ĝu₁₀**
-> ‘My lord, _the honey man,_ my god. My beautiful one of his mother.’
+> My lord, _the honey man,_ my god. My beautiful one of his mother.
 
 7\. **šu-ne₂ lal₃-e ĝiri₃-ne₂ lal₃-e ĝa₂-e mu-un-ku₇-ku₇-de₃-[en]**
-> ‘_His honey hands, his honey feet._ He makes me sweet again and again.’
+> _His honey hands, his honey feet._ He makes me sweet again and again.
 
 8\. **a₂-šu-ĝiri₃-ne₂ lal₃-e ku₇-ku₇-dam**(or variant **de₃**) **ĝa₂-e mu-un-ku₇-ku₇-[de₃-en]**
-> ‘_His honey limbs are sweet._ He makes me sweet again and again.’
+> _His honey limbs are sweet._ He makes me sweet again and again.
 
 9\. **en₃-dur šu niĝen₂ tukun ku₇-ku₇-ĝu₁₀ ⸢sa₆⸣-[ga ama-na-ĝu₁₀]**
-> ‘_My one with navel going back and forth, now sweet_. My beautiful one of his mother.’
+> _My one with navel going back and forth, now sweet_. My beautiful one of his mother.
 
 10\. **⸢ḫaš₄⸣ sa₆-sa₆ a₂ buluĝ₅-e šub-ĝu₁₀ ḫi-iz<sup>SAR</sup>-am₃ [a ba-an-du₁₁]**
-> ‘_My one who lets beautiful thighs and a swollen arm fall._ Here is a lettuce; he waters it.’
+> _My one who lets beautiful thighs and a swollen arm fall._ Here is a lettuce; he waters it.’
 
 ### Commentary
 
