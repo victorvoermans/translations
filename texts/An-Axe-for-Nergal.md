@@ -70,7 +70,7 @@ I’d like to drink my water clear.
 16\. **a si-ga ḫu-mu-un-na₈-na₈**
 > may he let me drink clear water.
 
-### Resources
+### Resources used
 
 - Score by Bram Jagersma (unpublished).
 - ETCSL [5.7.3](https://etcsl.orinst.ox.ac.uk/cgi-bin/etcsl.cgi?text=c.5.7.3&display=Crit&charenc=gcirc#).
