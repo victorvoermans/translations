@@ -33,4 +33,4 @@ My lettuce leaves he waters well
 ----
 
 Victor Voermans, December 2024  
-[Analysis](../analysis/Dumuzi-Inana_E.md)
+[Analysis](../analysis/Dumuzi-Inana-E.md)
