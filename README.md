@@ -2,8 +2,8 @@
 
 Texts:
 
-- [Dumuzi-Inana E](/texts/Dumuzi-Inana_E.md)
+- [Dumuzi-Inana E](/translation/Dumuzi-Inana_E.md)
 
 ---
 
-For transcriptions, commentary and sources, see this repository’s [Wiki](https://github.com/victorvoermans/translations/wiki).
+For transcriptions, commentary and sources, see this repository’s [analysis](/analysis) folder.
