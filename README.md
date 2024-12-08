@@ -1,4 +1,4 @@
-## Dumuzi-Inana E (4.8.5) "My lettuce leaves"
+## Dumuzi-Inana E (4.8.5) “My lettuce leaves”
 
 He grows, he grows, he gets so big  
 My lettuce leaves he waters well
