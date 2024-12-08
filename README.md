@@ -24,7 +24,7 @@ He pours his sweetness into me
 His honey limbs are o so sweet  
 He pours his sweetness into me
 
-His navel orbits mine so sweet  
+His navel circles mine so sweet  
 His mother’s joy belongs to me
 
 With joyous thighs he covers me  
