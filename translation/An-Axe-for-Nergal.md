@@ -20,4 +20,5 @@ I’d like to drink my water clear.
 
 ----
 
-Victor Voermans, December 2024
+Victor Voermans, December 2024  
+[Analysis](../analysis/An-Axe-for-Nergal.md)
