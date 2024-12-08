@@ -60,4 +60,4 @@ Copies:
 ---
 
 Victor Voermans, December 2024  
-[Translation](../translation/Dumuzi-Inana_E.md)
+[Translation](../translation/Dumuzi-Inana-E.md)
