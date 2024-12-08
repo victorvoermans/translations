@@ -1,3 +1,5 @@
+## Dumuzi-Inana E
+
 ### Composite text
 
 1\. **ba-lam ba-lam-lam ḫi-iz<sup>SAR</sup>-am₃ a ba-an-du₁₁**
