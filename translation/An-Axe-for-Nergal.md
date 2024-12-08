@@ -9,7 +9,7 @@ for Nergal god of mortal end.
 Its wood is from the highest peaks,  
 its stone unmatched came from the sky.  
 
-He swings and swings and wearies not,  
+He swings and strikes and wearies not,  
 a broken axe I will repair.  
 
 If lost I will replace his blade,  
