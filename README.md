@@ -2,7 +2,7 @@
 
 Texts:
 
-- [Dumuzi-Inana E](/Dumuzi-Inana_E.md)
+- [Dumuzi-Inana E](/texts/Dumuzi-Inana_E.md)
 
 ---
 
