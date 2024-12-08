@@ -57,5 +57,5 @@ Copies:
 
 ---
 
-Victor Voermans, December 2024.  
+Victor Voermans, December 2024  
 [Translation](../translation/Dumuzi-Inana_E.md)
