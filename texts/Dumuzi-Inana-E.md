@@ -61,7 +61,7 @@ My lettuce leaves he waters well
 9\. **en₃-dur šu niĝen₂ tukun ku₇-ku₇-ĝu₁₀ ⸢sa₆⸣-[ga ama-na-ĝu₁₀]**
 > _My one with navel going back and forth, now sweet_. My beautiful one of his mother.
 
-10\. **⸢ḫaš₄⸣ sa₆-sa₆ a₂ buluĝ₅-e šub-ĝu₁₀ ḫi-iz<sup>SAR</sup>-am₃ [a ba-an-du₁₁]**
+10\. **⸢ḫaš₄⸣ sa₆-sa₆ a₂ buluĝ₅<sup>?</sup>-e šub-ĝu₁₀ ḫi-iz<sup>SAR</sup>-am₃ [a ba-an-du₁₁]**
 > _My one who lets beautiful thighs and a swollen arm fall._ Here is a lettuce; he waters it.’
 
 ### Commentary
@@ -89,6 +89,6 @@ Copies:
 
 - CDLI [P345364](https://cdli.mpiwg-berlin.mpg.de/artifacts/345364), [P346206](https://cdli.mpiwg-berlin.mpg.de/artifacts/346206), [P223411](https://cdli.mpiwg-berlin.mpg.de/artifacts/223411).
 
----
+----
 
 Victor Voermans, December 2024
