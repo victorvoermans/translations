@@ -32,4 +32,4 @@ My lettuce leaves he waters well
 
 ---
 
-For transcriptions with commentary, see this repository’s [Wiki](https://github.com/victorvoermans/translations/wiki).
+For transcriptions, commentary and sources, see this repository’s [Wiki](https://github.com/victorvoermans/translations/wiki).
