@@ -6,7 +6,7 @@ Nibrutalu, a merchant’s son
 (Lugalsubi his father’s name)  
 
 had someone make an axe of tin  
-for Nergal god of mortal end.  
+for Nergal, god of mortal end.  
 
 Its wood is from the highest peaks,  
 its stone unmatched came from the sky.  
