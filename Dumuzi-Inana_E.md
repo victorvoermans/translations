@@ -29,3 +29,7 @@ His mother’s joy belongs to me
 
 With joyous thighs he covers me  
 My lettuce leaves he waters well
+
+----
+
+Victor Voermans, December 2024
