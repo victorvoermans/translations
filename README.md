@@ -1,4 +1,4 @@
 ## Translations
 
-- [An Axe for Nergal](/translation/An-Axe-for-Nergal.md)
-- [Dumuzi-Inana E](/translation/Dumuzi-Inana-E.md)
+- [An Axe for Nergal](/texts/An-Axe-for-Nergal.md)
+- [Dumuzi-Inana E](/texts/Dumuzi-Inana-E.md)
