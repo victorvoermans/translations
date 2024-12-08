@@ -1,4 +1,4 @@
-## Dumuzi-Inana E (4.8.5) “My lettuce leaves”
+## Dumuzi-Inana E ([4.8.5](https://etcsl.orinst.ox.ac.uk/cgi-bin/etcsl.cgi?text=c.4.08.05&display=Crit&charenc=gcirc#)) “My lettuce leaves”
 
 He grows, he grows, he gets so big  
 My lettuce leaves he waters well
