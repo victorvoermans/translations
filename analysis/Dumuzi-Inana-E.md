@@ -46,7 +46,7 @@
 
 10\. Here, **buluĝ₅** (which I can’t make out on the copy) would be a spelling variant of **buluĝ₃**. The ‘swollen arm’ would be another metafor for Dumuzi’s penis. The reading of RU as **šub** is uncertain.
 
-### Resources used
+### Resources
 
 Editions:
 
